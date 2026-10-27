@@ -1,1 +1,1 @@
-# Realizing
+yeah over these few days of GitHub-I’ve been realizing that literally no one sees my stuff besides my alt account to see what people see-and my ally @FaerieEternal. so I just vent to myself. i mean i know i do…and it’s been a little bit sense i vented. i might not do GitHub for a while-i just wanted to check in-y’know? 
